@@ -25,7 +25,7 @@ Check out my latest projects and work:
 
 ---
 ### 📬 Let's connect!
-* **LinkedIn: linkedin.com/in/hagar-ragab-dev
-* **Email: hagarragab2070@gmail.com
+LinkedIn: linkedin.com/in/hagar-ragab-dev
+Email: hagarragab2070@gmail.com
 
 *Always excited to collaborate and innovate!*
